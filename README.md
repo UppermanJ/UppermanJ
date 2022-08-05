@@ -1,5 +1,4 @@
 I’m @UppermanJ
-I can be reached via private message or through my email @ uppermanjosiah@gmail.com
 - Currently learning C++ and html/css
 - Looking to collaborate on many things
 - How to reach me - uppermanjosiah@gmail.com
